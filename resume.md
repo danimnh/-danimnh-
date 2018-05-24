@@ -12,13 +12,13 @@ Pendidikan
 ----------
 
 ### SMAN 13 Jakarta Utara
-Juli 2014 - Juni 2017
+Juli 2014--Juni 2017
 
 ### SMPI Al-Azhar Kelapa Gading
-Juli 2011 - Juni 2014
+Juli 2011 -- Juni 2014
 
 ### SDI Al-Azhar Kelapa Gading
-Juli 2008 - Juni 2011
+Juli 2008 -- Juni 2011
 
 Kepanitiaan
 ---------
